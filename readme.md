@@ -1,0 +1,1 @@
+Ecuador <S-BS>O0ID019AU
